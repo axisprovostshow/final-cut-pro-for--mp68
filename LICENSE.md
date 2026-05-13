@@ -1,4 +1,4 @@
-# 
+# Enhance Final Cut Pro for macOS with best Final Cut Pro for macOS Template | chromatic-aberration-fix + color-correction, the #1 template. Includes chromatic-aberration-fix and
 
 
 
